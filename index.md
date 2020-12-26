@@ -2,17 +2,17 @@
 
 ## Statement / ステートメント
 
-This exhibition is an experiment in photography and photography exhibitions. 
-
-It aims to investigate the unique relationship between visual work and audience in contemporary art. An act of presentation as much as it is a device of exhibition, photography takes over spaces, physically and psychologically, suggesting the possibility of other texts, deeper and more personal to the viewer. This particular exhibition attempts to not only investigate the relationship between the new public and photography, but also the possibility of a new ‘reading’ of the medium.
-
-The aesthetics of photography as a medium are closely related to the history of painting, and share an attention to formal design and representation. Recently, there has been a desire to bring photography to the centre of art history. In Camera Work: Alfred Stieglitz and Edward Weston, Anne Jessup claims that a commonality exists between early 20th-century photographers and artists such as Cézanne, Matisse and Picasso. Her claims are further supported by Joe Brainard’s observation that the 1920s brought the beginnings of a photographic canon in art. This canon has continued to mature ever since, and in the last decade photography has found itself in the midst of a global movement, built.
-
 本展は、写真と写真展についての試みです。
 
 それは、現代アートにおける視覚的な作品と観客との間のユニークな関係を調査することを目的としています。展覧会の装置であると同時にプレゼンテーションの行為でもある写真は、物理的にも心理的にも空間を支配し、鑑賞者にとってより深く、より個人的な他のテキストの可能性を示唆しています。今回の展覧会では、新しい大衆と写真との関係を調査するだけでなく、写真というメディアの新しい「読み方」の可能性を探ろうとしています。
 
 写真というメディアの美学は、絵画の歴史と密接に関連しており、形式的なデザインや表現への関心を共有しています。最近では、写真を美術史の中心に位置づけることが望まれている。カメラワークで。アルフレッド・スティグリッツとエドワード・ウェストン』では、アン・ジェサップは、20世紀初頭の写真家とセザンヌ、マティス、ピカソなどの芸術家との間に共通点があると主張しています。彼女の主張は、1920年代に芸術における写真のカノンの始まりをもたらしたというジョー・ブレイナードの観察によって、さらに支持されています。このカノンはそれ以来、成熟し続けており、この10年で写真は世界的なムーブメントの真っ只中にあることがわかりました。
+
+This exhibition is an experiment in photography and photography exhibitions. 
+
+It aims to investigate the unique relationship between visual work and audience in contemporary art. An act of presentation as much as it is a device of exhibition, photography takes over spaces, physically and psychologically, suggesting the possibility of other texts, deeper and more personal to the viewer. This particular exhibition attempts to not only investigate the relationship between the new public and photography, but also the possibility of a new ‘reading’ of the medium.
+
+The aesthetics of photography as a medium are closely related to the history of painting, and share an attention to formal design and representation. Recently, there has been a desire to bring photography to the centre of art history. In Camera Work: Alfred Stieglitz and Edward Weston, Anne Jessup claims that a commonality exists between early 20th-century photographers and artists such as Cézanne, Matisse and Picasso. Her claims are further supported by Joe Brainard’s observation that the 1920s brought the beginnings of a photographic canon in art. This canon has continued to mature ever since, and in the last decade photography has found itself in the midst of a global movement, built.
 
 ## Artworks / 作品について
 
